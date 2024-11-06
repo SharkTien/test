@@ -5,4 +5,8 @@ Xin chao moi nguoi
 2. he
 3. he
 4. he
-djqwwdqw kq d d
+djqwwdqw kq d d\
+qưdqưd
+qưdqưddq
+wd
+wdd
